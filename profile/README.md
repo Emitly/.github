@@ -1,1 +1,1 @@
-https://emitly.net/
+We hate GDPR. That's it I guess.
